@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-# I'm Jairam Chandra!
+# I'm Jai Ram Chandra!
 
 ## 🧑‍💻 About Me
 
